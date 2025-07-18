@@ -1,4 +1,4 @@
-Hi! My name is Markandeya Yalamanchi 👋
+Hello! My name is Markandeya Yalamanchi 👋
 
 I’m a student at the University of North Carolina Chapel Hill studying computer science 💻 and math 🔢 and public policy ⚖️
 
