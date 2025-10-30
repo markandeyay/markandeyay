@@ -7,4 +7,4 @@ My interests in CS are quite varied, but I'm particularly interested in machine 
 You should add me on Linkedin! www.linkedin.com/in/markyala 🔗
 
 You can reach me at markandeyayalamanchi9@gmail.com 📫
-or my university email markyala@ad.unc.edu
+or my university email markyala@unc.edu
